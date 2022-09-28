@@ -1,0 +1,1 @@
+# candidate_of_Murager_school
